@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @0svvma
+- *Im Ui/Ux - Esoports Designer!* ✨
+- *Developer Frontend* ✨
